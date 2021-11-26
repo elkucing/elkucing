@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @elkucing
 - 👀 I’m interested in crypto mining
-- 🌱 I’m currently learning crypto mining and tracing
+- 🌱 I’m currently learning crypto mining and trading
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me elkucing@yahoo.com
 
